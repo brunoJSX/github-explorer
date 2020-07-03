@@ -10,7 +10,7 @@
 
 &nbsp;
 
-![App Preview](https://i.imgur.com/VMU28JY.gif)
+![App Preview](https://i.imgur.com/40hXHC1.gif)
 
 ## Sobre 🤓
 
