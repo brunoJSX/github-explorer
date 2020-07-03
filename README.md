@@ -10,7 +10,7 @@
 
 &nbsp;
 
-![Teste](https://i.imgur.com/BLzEOds.gif)
+![Teste](https://i.imgur.com/40hXHC1s.gif)
 
 ## Sobre 🤓
 
